@@ -12,7 +12,7 @@ Welcome to my **UI/UX Designs** repository! This repo contains a curated collect
 
 ## 🔗 Design Resources
 
-- **Behance Portfolio**: [View my Behance](https://www.behance.net/yourusername)  
+- **Behance Portfolio**: [View my Behance](https://www.behance.net/rajmalpure)  
 - **Figma Projects**: [Open in Figma](https://www.figma.com/@yourusername)
 
 ## 📷 Previews
