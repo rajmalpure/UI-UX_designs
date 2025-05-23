@@ -29,7 +29,7 @@ Here are a few snapshots of my featured designs:
 
 I'm always open to feedback, collaboration, and freelance opportunities. Feel free to reach out!
 
-- 🌐 LinkedIn: [linkedin.com/in/yourusername](https://www.linkedin.com/in/raj-malpure-24143628b/)
+- 🌐 LinkedIn: [Raj Malpure](https://www.linkedin.com/in/raj-malpure-24143628b/)
 
 ---
 
